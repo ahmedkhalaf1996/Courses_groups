@@ -1,4 +1,4 @@
-![image](https://github.com/ahmedkhalaf1996/Courses_groups/assets/37617170/6d9d0e79-7668-4bb5-a78f-327151e1ac9a)# POST CONTENT
+# POST CONTENT
 
   3 UDEMY COURSES !!! ONLY FOR Limited Time 
   !!! REACT JS REDUX NODE EXPRESS MYSQL DEVELOPER COURSE.
@@ -125,6 +125,88 @@ https://www.facebook.com/groups/learnGolang/
 https://www.facebook.com/groups/1975445519381526/
 
 https://www.facebook.com/groups/reactnativedevelopers2022/
+
+https://www.facebook.com/groups/prog11/
+
+https://www.facebook.com/groups/1549592438605145/
+
+https://www.facebook.com/groups/361545343874004/
+
+https://www.facebook.com/groups/webdevelopment0/
+
+https://www.facebook.com/groups/389957905509007/
+
+https://www.facebook.com/groups/2110001399312139/
+
+https://www.facebook.com/groups/IMSoftwareEngineer/
+
+https://www.facebook.com/groups/660737431156660/
+
+https://www.facebook.com/groups/kpabhi/
+
+https://www.facebook.com/groups/442974152553174/
+
+https://www.facebook.com/groups/442974152553174/
+
+https://www.facebook.com/groups/pyprogramming/
+
+https://www.facebook.com/groups/gamedevelopmentx/
+
+https://www.facebook.com/groups/programmology/
+
+https://www.facebook.com/groups/includehelp/
+
+https://www.facebook.com/groups/trickjan/
+
+https://www.facebook.com/groups/trickjan/
+
+https://www.facebook.com/groups/python/
+
+https://www.facebook.com/groups/314322608645843/
+
+https://www.facebook.com/groups/166924795280305/
+
+https://www.facebook.com/groups/519390688087120/
+
+https://www.facebook.com/groups/289768724501368/
+
+https://www.facebook.com/groups/995474220466742/
+
+https://www.facebook.com/groups/341597009554840/
+
+https://www.facebook.com/groups/bigdatastatistics/
+
+https://www.facebook.com/groups/coderhub/
+
+https://www.facebook.com/groups/pypcom/
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
