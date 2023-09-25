@@ -282,61 +282,60 @@ https://www.facebook.com/groups/959545557455415/
 
 https://www.facebook.com/groups/freelancewebdesignanddevelopment/
 
+https://www.facebook.com/groups/webdesignanddevelopmentgurus/
+
+https://www.facebook.com/groups/fluttercommunity/
+
+https://www.facebook.com/groups/2574074659515257/
 
 
+https://www.facebook.com/groups/2054036691287323/
 
 
+https://www.facebook.com/groups/YouProgrammer/
+
+https://www.facebook.com/groups/AI.ML.DL/
+
+https://www.facebook.com/groups/1916230385068522/
+
+https://www.facebook.com/groups/SwiftSolution/
+
+https://www.facebook.com/groups/machinelearningforum/
+
+https://www.facebook.com/groups/webdesigningndevelopment/
+
+https://www.facebook.com/groups/postgres/
+
+https://www.facebook.com/groups/wdadi/
+
+https://www.facebook.com/groups/118355661537061/
+
+https://www.facebook.com/groups/462013510645923/
+
+https://www.facebook.com/groups/251502155764625/
+
+https://www.facebook.com/groups/2310400015870119/
 
 
+https://www.facebook.com/groups/2204685680/
+
+https://www.facebook.com/groups/gamedev/
+
+https://www.facebook.com/groups/jquerycode/
+
+https://www.facebook.com/groups/javascript.thailand/
+
+https://www.facebook.com/groups/398779564139778/
+
+https://www.facebook.com/groups/154516551801282/
 
 
+https://www.facebook.com/groups/1596729157311986/
+
+https://www.facebook.com/groups/758271770980912/
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+https://www.facebook.com/groups/jsdev/
 
 
 
