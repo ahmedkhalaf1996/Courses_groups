@@ -180,6 +180,59 @@ https://www.facebook.com/groups/coderhub/
 
 https://www.facebook.com/groups/pypcom/
 
+https://www.facebook.com/groups/1672194893083229/
+
+https://www.facebook.com/groups/843804142348443/
+
+https://www.facebook.com/groups/5198909724/
+
+https://www.facebook.com/groups/xamarin.developers/
+
+https://www.facebook.com/groups/870679502962911/
+
+https://www.facebook.com/groups/typescript.developers/
+
+https://www.facebook.com/groups/162454874353549/
+
+https://www.facebook.com/groups/wwebdeveloper/
+
+https://www.facebook.com/groups/3262258453851785/
+
+https://www.facebook.com/groups/pythondevelopers/
+
+https://www.facebook.com/groups/1565800223705054/
+
+https://www.facebook.com/groups/1097544220261344/
+
+https://www.facebook.com/groups/2342696702410266/
+
+https://www.facebook.com/groups/428324874386642/
+
+https://www.facebook.com/groups/598343080590393/
+
+https://www.facebook.com/groups/1257540794316060/
+
+https://www.facebook.com/groups/413844312502786/
+
+https://www.facebook.com/groups/modern.web.design.development/
+
+https://www.facebook.com/groups/1000038303359383/
+
+https://www.facebook.com/groups/Codeigniterdev/
+
+https://www.facebook.com/groups/golanggonuts/
+
+https://www.facebook.com/groups/c.cpp.programmer/
+
+https://www.facebook.com/groups/341614815998967/
+
+https://www.facebook.com/groups/mathforaibigdata/
+
+
+https://www.facebook.com/groups/1906439242913543/
+
+
+
 
 
 
